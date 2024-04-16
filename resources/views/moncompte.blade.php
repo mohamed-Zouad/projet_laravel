@@ -1,0 +1,1 @@
+bienvenue,sur votre compte,stagiaire!
